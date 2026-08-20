@@ -1,4 +1,4 @@
-# Olá, eu sou o Saika! 👋
+# Olá, eu sou o Nadson, ou, Saika! 👋
 
 🎓 Estudante de Ciência da Computação
 
